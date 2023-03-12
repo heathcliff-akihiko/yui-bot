@@ -22,7 +22,7 @@ Atenção ao prefixo, este é obrigatório.
 
 **&games sao:lr**
 
-![](https://33333.cdn.cke-cs.com/kSW7V9NHUXugvhoQeFaf/images/364a452f46c93afb8948ca49c25897ac4cc8f64f47ba7d48.jpg)
+![](https://i.imgur.com/ywRZIqh.jpg)
 
 ### **SAO: ALicization Lycoris**
 
